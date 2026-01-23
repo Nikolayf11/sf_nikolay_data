@@ -1,1 +1,0 @@
-# sf_nikolay_data
